@@ -1,4 +1,4 @@
-# Pet-Simulator-99-Duplication-Script-undetected-
+# Pet-Sim-99-Dupe-Script-undetected-
 Duplicate gems, huges, titanics, use free autofarm, etc.
 
 
